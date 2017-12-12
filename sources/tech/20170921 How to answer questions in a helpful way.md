@@ -1,3 +1,5 @@
+Translating... (HelloWyrd)
+
 How to answer questions in a helpful way
 ============================================================
 
